@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @nikhil2027
-- 👀 I’m interested in learning new things
 - 🌱 I’m currently pursuing Btech in COMPUTER ENGIEERING
 - I'm currently in 1st Year.
 - 💞️ I’m looking to collaborate on (NOTIFY SOON)
