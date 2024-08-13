@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @nikhil2027
+- 👋 Hi, I’m @nikhil2027 (NIKHIL KUMAR)
 - 🌱 I’m currently pursuing Btech in COMPUTER ENGIEERING
-- I'm currently in 1st Year.
+- I'm currently in 2nd Year.
 - 💞️ I’m looking to collaborate on (NOTIFY SOON)
 - 📫 How to reach me (SOON)
 
